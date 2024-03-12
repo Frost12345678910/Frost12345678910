@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Frost
+- 👀 I’m interested in making game
+- 🌱 I’m currently learning making games
+- 💞️ I’m looking to collaborate on making games
+- 📫 you can reach reach me by my discrod which is bepe123
+- 😄 Pronouns: he - him
